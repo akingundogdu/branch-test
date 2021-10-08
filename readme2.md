@@ -1,0 +1,1 @@
+ben ozgurum ben ayri yerde calisiyorum
